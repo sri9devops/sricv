@@ -1,6 +1,6 @@
 # Sridhar N — Cloud, DevOps, MLOps & Data Architecture Leader
 
-**Senior DevOps Cloud & Platform Engineer | Data & Solutions Architect**
+**Senior Cloud & Platform Consultant | Data & Solutions Architect**
 
 ---
 
